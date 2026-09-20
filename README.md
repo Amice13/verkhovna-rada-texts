@@ -1,1 +1,0 @@
-# vekrhovna-rada-texts
